@@ -16,9 +16,7 @@ Soy estudiante de Instituto Biligüe Frida Kahlo
 
 📺 Me encanta ver anime
 
+😜 Soy chistosa
 
-😄 Pronouns...
-
-⚡️ Fun fact...
-
+👦👧 Amo a los niños pequeños
 
