@@ -12,11 +12,10 @@ Soy estudiante de Instituto Biligüe Frida Kahlo
 
 🎶 Mi pasatiempo favorito es escuchar música
 
+🐱 Mis animales favoritos son el gato y el lince
 
+📺 Me encanta ver anime
 
-💬 Ask me about...
-
-📫 How to reach me...
 
 😄 Pronouns...
 
