@@ -10,9 +10,9 @@ Soy estudiante de Instituto Biligüe Frida Kahlo
 
 💻 Estudio en programacion, electronica y domótica
 
-👯‍♀️ I'm looking to collaborate on...
+🎶 Mi pasatiempo favorito es escuchar música
 
-🤔 I'm looking for help with...
+
 
 💬 Ask me about...
 
